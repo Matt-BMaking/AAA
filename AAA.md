@@ -41,7 +41,7 @@
 
 **§3. GENERAL PROVISIONS**
 
-(a) Department administration shall be required to maintain communication with the County Executive in regards to any major investigations, as determined by the Secretary, in regards to members who are a part of county agencies.
+(a) The Department of Public Safety administration shall be required to maintain communication with the County Executive in regards to any major investigations, as determined by the Secretary, in regards to members who are a part of county agencies.
 
 (b) The County Executive shall be allowed to gain access to any investigations relating to county or municipal employees, upon request to the Secretary.
 
